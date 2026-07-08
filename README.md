@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAGJ960507HQRYRS04
+MAGJ960507HQRYRS04
